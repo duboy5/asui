@@ -1,5 +1,5 @@
 
-🔞｜頻道_777,#genre#
+🔞｜頻道_3722,#genre#
 K3,http://he11o.akadatel.com/iptv/DSVPF5Z9B55L4A/6225/index.m3u8
 BCU Charm HD,http://56d0d5e9.akadatel.com/iptv/7LL5FKWDQVAZBW/18053/index.m3u8
 Beanpaste,https://fc.imgscloud.com/c/edgnokzuzi/edgnokzuzi.m3u8
@@ -357,7 +357,8 @@ DYTM008抖音旅行射第8期贵州侗族民族风,https://t11.cdn2020.com:12336
 新来的技师小樵-沈樵,https://t6s.cdn2020.com/video/m3u8/2021/02/12/0b5f543f/index.m3u8
 醉酒女郎激情诱惑网约司机-沈樵,https://t7.cdn2020.com/video/m3u8/2021/05/09/29286674/index.m3u8
 女色狼勾引快递小哥-沈樵,https://t7.cdn2020.com/video/m3u8/2021/07/10/2339bcbe/index.m3u8
-乱来的_9527,#genre#
+
+乱来的_3722,#genre#
 内射黑丝骚表姐,https://t11.cdn2020.com:12336/video/m3u8/2021/09/23/20620a9f/index.m3u8
 性感小车模跟男友的三小时做爱大秀,https://t11.cdn2020.com:12336/video/m3u8/2021/09/23/bfffd0c3/index.m3u8
 特殊中秋礼物呈现方式-nicolove,https://t11.cdn2020.com:12336/video/m3u8/2021/09/23/9db01c2c/index.m3u8
@@ -413,7 +414,7 @@ MD反叛女学生的逆袭-玥可岚,https://t11.cdn2020.com:12336/video/m3u8/20
 兄弟新交的女朋友-李雪[1280*720],https://je40u.cdnedge.live/file/avple-images/hls/60e440690fcb11183bc80a17/playlist.m3u8
 公公的特別照?-?若?[1280*720],https://10j99.cdnedge.live/file/avple-images/hls/60df0ff9e982005101367fcb/playlist.m3u8
 
-👠台湾欧美_9527,#genre#
+👠台湾欧美_3722,#genre#
 EXTASY成人,http://213.151.233.20:8000/dna-6233-tv-pc/hls/4003v105.m3u8_zase.jebes.kresnu.mac.tu
 松视1欧美版,http://live.redtraffic.xyz:80/interracial.m3u8
 松视2欧美版,http://live.redtraffic.xyz:80/bigtits.m3u8
@@ -448,7 +449,7 @@ K频道欧美版,http://live.redtraffic.xyz:80/threesome.m3u8
 偷情,http://live.redtraffic.xyz/cuckold.m3u8?fluxuslust.m3u8
 
 
-👠二本道_9527,#genre#
+👠二本道_3722,#genre#
 一本道720P03,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181125/1/1bd/121115_205-1pon/index.m3u8
 一本道720P04,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181125/1/1bd/120915_204-1pon/index.m3u8
 一本道720P05,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181125/1/1bd/112015_193-1pon/index.m3u8
@@ -496,7 +497,7 @@ K频道欧美版,http://live.redtraffic.xyz:80/threesome.m3u8
 一本道720P49,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181123/4/1pon-112815_198/index.m3u8
 一本道720P50,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181123/4/1pon-112715_197/index.m3u8
 
-👠天美传媒_9527,#genre#
+👠天美传媒_3722,#genre#
 天美傳媒01,https://video2.51daao.com/btt1/2021/03/20210313/NT9t3UiF/index.m3u8
 天美傳媒03,https://video2.51daao.com/btt1/2021/02/20210222/6T5EJIqq/index.m3u8
 天美傳媒04,https://video2.51daao.com/btt1/2021/02/20210210/GelcPLQ0/index.m3u8
@@ -555,7 +556,7 @@ K频道欧美版,http://live.redtraffic.xyz:80/threesome.m3u8
 果凍傳媒34,https://video2.51daao.com/btt1/2021/01/20210112/a1pA2jdF/index.m3u8
 果凍傳媒35,https://video2.51daao.com/btt1/2021/01/20210112/K9FrZ4HL/index.m3u8
 
-👠新麻豆传媒_9527,#genre#
+👠新麻豆传媒_3722,#genre#
 新麻豆傳媒0.1,https://video2.51daao.com/btt1/2021/04/20210421/vTcVOAWe/index.m3u8
 新麻豆傳媒0.2,https://video2.51daao.com/btt1/2021/04/20210421/uerOlDXv/index.m3u8
 新麻豆傳媒0.3,https://video2.51daao.com/btt1/2021/04/20210421/Q6vpCHnh/index.m3u8
@@ -653,7 +654,7 @@ K频道欧美版,http://live.redtraffic.xyz:80/threesome.m3u8
 新麻豆傳媒83,https://video2.51daao.com/btt1/2021/03/20210317/h9c3WuCM/index.m3u8
 新麻豆傳媒84,https://video2.51daao.com/btt1/2021/03/20210317/pgq05qz0/index.m3u8
 
-👠老麻豆_9527,#genre#
+👠老麻豆_3722,#genre#
 麻豆傳媒03,https://video2.51daao.com/btt1/2021/03/20210315/VTm3ZPZ6/index.m3u8
 麻豆傳媒05,https://video2.51daao.com/btt1/2021/03/20210315/QLJViitJ/index.m3u8
 麻豆傳媒06,https://video2.51daao.com/btt1/2021/03/20210315/V8HtLFLG/index.m3u8
@@ -780,7 +781,7 @@ K频道欧美版,http://live.redtraffic.xyz:80/threesome.m3u8
 麻豆傳媒198,https://video2.51daao.com/btt1/2021/01/20210118/Iztk31Tt/index.m3u8
 麻豆傳媒199,https://video2.51daao.com/btt1/2021/01/20210118/4i2DBh7I/index.m3u8
 
-👠老麻豆2_9527,#genre#
+👠老麻豆2_3722,#genre#
 麻豆傳媒201,https://video2.51daao.com/btt1/2021/01/20210118/ai91voQi/index.m3u8
 麻豆傳媒202,https://video2.51daao.com/btt1/2021/01/20210118/FSIWDY1c/index.m3u8
 麻豆傳媒203,https://video2.51daao.com/btt1/2021/01/20210118/LaBrCyOb/index.m3u8
@@ -884,7 +885,7 @@ K频道欧美版,http://live.redtraffic.xyz:80/threesome.m3u8
 麻豆傳媒311,https://video2.51daao.com/btt1/2020/04/20200404/LCoCUCsC/index.m3u8
 麻豆傳媒312,https://video2.51daao.com/btt1/2020/04/20200404/zecyFiWg/index.m3u8
 
-👠SWAG_9527,#genre#
+👠SWAG_3722,#genre#
 SWAG60部,https://video2.51daao.com/btt1/2020/11/20201128/0RFuc2Vd/index.m3u8
 qq群670883617有你想听的有你想看的,https://video2.51daao.com/btt1/2020/12/20201217/c6kYDK4p/index.m3u8
 SWAG-Bella性麻豆傳媒影片流出,https://video2.51daao.com/btt1/2020/07/20200705/ZBECSx9p/index.m3u8
@@ -1007,7 +1008,7 @@ SWAG自慰弄到受不了就找粉絲解悶,https://video2.51daao.com/btt1/2020/
 
 
 
-👠HEYZO_9527,#genre#
+👠HEYZO_3722,#genre#
 HEYZO720P50部,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1942_full/1500kb/hls/index.m3u8
 HEYZO720P30,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1958_full/1500kb/hls/index.m3u8
 HEYZO720P31,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1941_full/1500kb/hls/index.m3u8
@@ -1030,7 +1031,7 @@ HEYZO720P47,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1940_full/1500kb/hls/
 HEYZO720P48,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1950_full/1500kb/hls/index.m3u8
 HEYZO720P49,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1951_full/1500kb/hls/index.m3u8
 
-👠三本道_9527,#genre#
+👠三本道_3722,#genre#
 一本1[720*404],https://vip4.ddyunbo.com/20210223/lFsvEfoW/index.m3u8?skipl=1
 一本2[720*402],https://vip4.ddyunbo.com/20210223/irFKB3O3/index.m3u8?skipl=1
 一本4[720*404],https://vip4.ddyunbo.com/20210223/I28Qes3F/index.m3u8?skipl=1
@@ -1153,7 +1154,7 @@ HEYZO720P49,https://video1.rhsj520.com/nyrm3/wuma/heyzo_hd_1951_full/1500kb/hls/
 一本137[720*404],https://vip4.ddyunbo.com/20210203/Rs915orP/index.m3u8?skipl=1
 一本126[720*404],https://vip4.ddyunbo.com/20210203/z0V8HvxE/index.m3u8?skipl=1
  
- 👠ABD_9527,#genre#
+ 👠ABD_3722,#genre#
 ABP-298,http://videocdnbaidu.rhsj520.com/rbny/20180807/cgcly/ABP-298/index.m3u8
 ABP-680-SEX肉弾戦-瀬名きらり,http://ginocdn.bybzj.com:8091/zimu/20180520/ABP-680c/650kb/hls/index.m3u8
 ABP-682-特濃精子集中砲火-愛音まりあ-,http://ginocdn.bybzj.com:8091/zimu/20180520/ABP-682c/650kb/hls/index.m3u8
@@ -1216,7 +1217,7 @@ DOCP-017Ac-素人寝取,http://videocdn.quweikm.com:8091/20181001/DOCP-017Ac/ind
 DOCP-017Bc-素人寝取,http://videocdn.quweikm.com:8091/20181001/DOCP-017Bc/index.m3u8
 
 
-👠大清未央_9527,#genre#
+👠大清未央_3722,#genre#
 100％casero,http://1244.vod.adultiptv.net/ph5a4e81f67562b/play.m3u8
 330回歸厚待-場景1,http://10238.vod.redtraffic.xyz/ph5663156221910/play.m3u8
 800DAD黛西·夢露被拘留中的公雞撞毀,http://10238.vod.redtraffic.xyz/ph5c3fe171b9c92/play.m3u8
@@ -1243,7 +1244,7 @@ DOCP-017Bc-素人寝取,http://videocdn.quweikm.com:8091/20181001/DOCP-017Bc/ind
 05560556,http://60106.vod.redtraffic.xyz/ph5a2eb32649c1e/play.m3u8
 
 
-👠达人源_9527,#genre#
+👠达人源_3722,#genre#
 [合法萝莉美少女] 萝莉必看○N！！！身材矮小,https://ss.rongliren.com/api/video/m3u8?id=13486&admin=1
 [激川眼镜美少女] 20岁,https://ss.rongliren.com/api/video/m3u8?id=12978&admin=1
 [涩谷万圣节2019] 弹出的柔软皮肤准备对接！可爱的脸蛋MAX 19岁！,https://ss.rongliren.com/api/video/m3u8?id=13458&admin=1
@@ -3842,7 +3843,7 @@ YK-002鲍鱼市成人海鲜,https://ss.rongliren.com/api/video/m3u8?id=8954&admi
 
 
 
-👠你懂的_9527,#genre#
+👠你懂的_3722,#genre#
 麻豆传媒301,https://video2.51daao.com/btt1/2020/12/20201229/D3aeuQQy/index.m3u8
 麻豆传媒300,https://video2.51daao.com/btt1/2020/12/20201203/ttD9xC3i/index.m3u8
 麻豆传媒299,https://video2.51daao.com/btt1/2020/12/20201204/4GoxGRAS/index.m3u8
@@ -4230,11 +4231,12 @@ bbw 妻子亂搞 bbc bf 並讓丈夫再次觀看,http://6122.vod.adultiptv.net/p
 性交年輕學生和射液屁股,http://6122.vod.redtraffic.xyz/ph5c16973caedbc/play.m3u8
 他的兄弟會主席 w 巨大的厚公雞亂搞拉丁聯誼會女孩。,http://6122.vod.redtraffic.xyz/ph5c24324136ecd/play.m3u8
 
-
-
 DVDES-917,http://video1.rhsj520.com:8091/nyrm3/lyaml/DVDES-917/1500kb/hls/index.m3u8
 DVDES-869,http://video1.rhsj520.com:8091/nyrm3/lyaml/DVDES-869/1500kb/hls/index.m3u8
-outflow_9527,#genre#
+
+
+outflow_3722,#genre#
+
 警花张津瑜[896x1920],http://picasso-qiniu.xiaohongshu.com/xhs/6f89d3dcdcf39fae0c583975dd55e4a7061ed2bf.m3u8
 警花张津瑜[1056x1920],http://picasso-qiniu.xiaohongshu.com/xhs/95bb7942a94921b0bd7bf7c818354fca5500f718.m3u8
 警花张津瑜,https://cdn.xueyunongzhuang.com/4m3u8/429.m3u8
@@ -4346,7 +4348,8 @@ PUA 大神 looks19x 和酒吧 DJ 视频流出,https://m3u8.zztt85.com/watch9/42f
 真实勾搭小学生女厕所啪啪,https://m3u8.zztt85.com/watch9/1eec8abe77a8bec5c9ca2aa983dda345/1eec8abe77a8bec5c9ca2aa983dda345.m3u8
 直播迷奸 还把女生露脸,https://m3u8.zztt85.com/watch9/8071d9f60a0cf17cb2c22334f4b439d0/8071d9f60a0cf17cb2c22334f4b439d0.m3u8
 
-Adult_9527,#genre#
+
+Adult_3722,#genre#
 Erotic[720x576],http://54.36.123.36:8080/PinkErotic1/video.m3u8
 Erotic 2[720x576],http://54.36.123.36:8080/PinkErotic2/video.m3u8
 Erotic 3[720x576],http://195.154.185.179:80/xx_hot_tv/video.m3u8
