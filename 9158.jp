@@ -1,5 +1,5 @@
  
-//==  Modify 2023/09/10 10:22:45  ==
+//==  Modify 2023/09/11 12:36:08  ==
 //☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ 
 
 🚲｜真 無 聊,#genre#
@@ -1299,10 +1299,9 @@ MTV,mitv://135.148.104.228:19806/15683e7c18794b389ca5f5e6df4059bf
 CHANNEL-V,http://vl15191373.imwork.net:8880/udp/239.93.0.157:2194
 CHANNEL-V,http://xstartx.com:4000/udp/239.93.0.157:2194
 CHANNEL-V,http://xstartx.com:4000/udp/239.93.1.7:2194
-时尚台FTV,https://epg.pw/stream/f20956a125c9670ce154f5a62ba3bb860ab730738d62802d10304205da690f83.m3u8
-時尚台FTV,https://epg.pw/stream/a9ade6156d35873ae8613909cef776b908c73c9c81ae9e34ac5d15b806b51dad.m3u8
 时尚台FTV,http://80.94.54.42/fashiontv/stream/playlist.m3u8
-
+时尚台FTV,https://epg.pw/stream/f20956a125c9670ce154f5a62ba3bb860ab730738d62802d10304205da690f83.m3u8
+时尚台FTV,https://epg.pw/stream/a9ade6156d35873ae8613909cef776b908c73c9c81ae9e34ac5d15b806b51dad.m3u8
 
 
 香港卫视,http://zhibo.hkstv.tv/livestream/mutfysrq/playlist.m3u8
@@ -2659,7 +2658,8 @@ CCTV-央视台球,http://dbiptv.sn.chinamobile.com/PLTV/88888890/224/3221226956/
 周星驰粤语h,https://live.goodiptv.club/api/huya.php?id=11336587
 洪金宝,https://live.goodiptv.club/api/huya.php?id=11279251
 李连杰,https://live.goodiptv.club/api/huya.php?id=11342390
-成龙,https://epg.pw/stream/eafc1adaaec0364fa93e48fbaa0a48ea1e1e9f1912cdc7512da8967b95004da5.ctv
+成龙一,https://epg.pw/stream/eafc1adaaec0364fa93e48fbaa0a48ea1e1e9f1912cdc7512da8967b95004da5.ctv
+
 成龙一,https://live.goodiptv.club/api/huya.php?id=11342386
 成龙二,https://live.goodiptv.club/api/huya.php?id=27125437
 成龙三,http://maomao.kandiantv.cn/douyu1.php?id=3379942
@@ -3226,7 +3226,7 @@ OPPO新机发售,https://live.goodiptv.club/api/huya.php?id=26355813
 喜剧脱口秀 笑傲江湖,http://diyp.112114.xyz/huya/11352937
 笑傲帮 顶尖笑匠再登舞台,http://diyp.112114.xyz/huya/11352908
 德云社郭德纲相声,http://diyp.112114.xyz/huya/25343324
-搞笑的一家人,http://diyp.112114.xyz/huya/11342402
+
 
 音乐快斗☆每天好音乐,http://diyp.112114.xyz/douyu/8324627
 喵喵音乐☆时尚网红神曲,http://diyp.112114.xyz/douyu/9568091
@@ -3268,7 +3268,6 @@ OPPO新机发售,http://diyp.112114.xyz/huya/26355813
 喜剧脱口秀 笑傲江湖,https://live.metshop.top/huya/11352937
 笑傲帮 顶尖笑匠再登舞台,https://live.metshop.top/huya/11352908
 德云社郭德纲相声,https://live.metshop.top/huya/25343324
-搞笑的一家人,https://live.metshop.top/huya/11342402
 音乐小石榴,https://live.metshop.top/huya/17091681
 历史揭秘人阿水主播,https://live.metshop.top/huya/15821671
 乐高大师赛☆创意惊人,https://live.metshop.top/huya/26355776
@@ -3298,7 +3297,7 @@ OPPO新机发售,https://live.metshop.top/huya/26355813
 喜剧脱口秀 笑傲江湖,http://43.128.40.42:198/虎牙直播/huya.php?id=11352937
 笑傲帮 顶尖笑匠再登舞台,http://43.128.40.42:198/虎牙直播/huya.php?id=11352908
 德云社郭德纲相声,http://43.128.40.42:198/虎牙直播/huya.php?id=25343324
-搞笑的一家人,http://43.128.40.42:198/虎牙直播/huya.php?id=11342402
+
 
 音乐快斗☆每天好音乐,http://lxajh.top/tv/douyu.php?id=8324627
 喵喵音乐☆时尚网红神曲,http://lxajh.top/tv/douyu.php?id=9568091
@@ -3341,7 +3340,6 @@ OPPO新机发售,http://43.128.40.42:198/虎牙直播/huya.php?id=26355813
 喜剧脱口秀 笑傲江湖,https://www.goodiptv.club/huya/11352937
 笑傲帮 顶尖笑匠再登舞台,https://www.goodiptv.club/huya/11352908
 德云社郭德纲相声,https://www.goodiptv.club/huya/25343324
-搞笑的一家人,https://www.goodiptv.club/huya/11342402
 
 音乐快斗☆每天好音乐,http://epg.112114.xyz/douyu/8324627
 喵喵音乐☆时尚网红神曲,http://epg.112114.xyz/douyu/9568091
@@ -3383,7 +3381,6 @@ OPPO新机发售,https://www.goodiptv.club/huya/26355813
 喜剧脱口秀 笑傲江湖,http://hls.ye23.vip/wl/huya2205.php?id=11352937
 笑傲帮 顶尖笑匠再登舞台,http://hls.ye23.vip/wl/huya2205.php?id=11352908
 德云社郭德纲相声,http://hls.ye23.vip/wl/huya2205.php?id=25343324
-搞笑的一家人,http://hls.ye23.vip/wl/huya2205.php?id=11342402
 音乐小石榴,http://hls.ye23.vip/wl/huya2205.php?id=17091681
 历史揭秘人阿水主播,http://hls.ye23.vip/wl/huya2205.php?id=15821671
 乐高大师赛☆创意惊人,http://hls.ye23.vip/wl/huya2205.php?id=26355776
@@ -3409,8 +3406,8 @@ OPPO新机发售,http://hls.ye23.vip/wl/huya2205.php?id=26355813
 
 🍎｜爱 美 食,#genre#
 
-中华美食,http://[2409:8087:2001:20:2800:0:df6e:eb03]/wh7f454c46tw2358157348_789958620/ott.mobaibox.com/PLTV/88888890/224/3221227017/index.m3u8?icpid=88888890&RTS=1687954570&from=40&popid=40&hms_devid=2039&prioritypopid=40&vqe=3
 中华美食,https://epg.pw/stream/314518951e83b29090b3d6aaae7ba202351a1be8663aac349be6e56e4a41a811.ctv
+中华美食,http://[2409:8087:2001:20:2800:0:df6e:eb03]/wh7f454c46tw2358157348_789958620/ott.mobaibox.com/PLTV/88888890/224/3221227017/index.m3u8?icpid=88888890&RTS=1687954570&from=40&popid=40&hms_devid=2039&prioritypopid=40&vqe=3
 
 舌尖美食,http://maomao.kandiantv.cn/douyu1.php?id=9650849
 舌尖美食,http://lxajh.top/tv/douyu.php?id=9650849
@@ -3903,7 +3900,7 @@ GOODTV天堂敬拜HD,https://dqhxk7sbp7xog.cloudfront.net/hls-live/goodtv/_defin
 张学友①,https://vd3.bdstatic.com/mda-pa8n796nrstxsdgi/576p/h264/1673335313823142215/mda-pa8n796nrstxsdgi.mp4?auth_key=1673455526-0-0-5ee7c88301f170c3b0fab5f5055241c4&bcevod_channel=searchbox_feed&cd=0&pd=1&pt=0&logid=0926382100&vid=3701926600612741404&abtest=all
 张学友②,https://vd2.bdstatic.com/mda-pa9c5avkgxf7qy7j/576p/h264/1673340560152860465/mda-pa9c5avkgxf7qy7j.mp4?auth_key=1673456052-0-0-f27a1f9b95f26635decf3e5c4001b204&bcevod_channel=searchbox_feed&cd=0&pd=1&pt=0&logid=1452334205&vid=4704837215729187833&abtest=all
 张学友③,https://vd4.bdstatic.com/mda-pa9cgwnw3hsifpnk/576p/h264/1673341214545824055/mda-pa9cgwnw3hsifpnk.mp4?auth_key=1673456114-0-0-c9b73c54b648946f2dab94b611655042&bcevod_channel=searchbox_feed&cd=0&pd=1&pt=0&logid=1514728094&vid=4401725306099737385&abtest=all
-王杰音乐①,https://vd4.bdstatic.com/mda-pacpnmsverm0mgur/hd/cae_h264/1673632428331152653/mda-pacpnmsverm0mgur.mp4?auth_key=1673968511-0-0-7060e95d3ad4c81bea37236aa20402d1&bcevod_channel=searchbox_feed&cd=0&pd=1&pt=0&logid=2711580068&vid=5234858874811347195&abtest=all
+王杰①,https://vd4.bdstatic.com/mda-pacpnmsverm0mgur/hd/cae_h264/1673632428331152653/mda-pacpnmsverm0mgur.mp4?auth_key=1673968511-0-0-7060e95d3ad4c81bea37236aa20402d1&bcevod_channel=searchbox_feed&cd=0&pd=1&pt=0&logid=2711580068&vid=5234858874811347195&abtest=all
 王杰①,http://gg.gg/12zwyk
 王杰②,http://gg.gg/12zwyo
 王杰③,http://gg.gg/12zwyr
