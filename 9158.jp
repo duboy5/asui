@@ -1,5 +1,5 @@
  
-//==  Modify 2023/09/21 13:04:11  ==Cqlz== 
+//==  Modify 2023/09/22 11:19:30  ==Cqlz== 
 //☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ 
 
 🚲｜真 無 聊,#genre#
@@ -658,13 +658,17 @@ CCTV4K,http://cfss.cc/ds/bst.php?id=Cf-0
 华数4K,http://111.40.196.28/0000000000001000/1.m3u8?Contentid=6000000003000004748&livemode=1&stbId=1213&channel-id=wasusyt
 华数4K,http://[2409:8087:7001:20:1000::95]:6610/000000001000/6000000003000004748/index.m3u8?channel-id=wasusyt&Contentid=6000000003000004748&livemode=1&stbId=3
 
-BesTV 4K ,http://[2409:8087:5e01:34::30]:6610/ZTE_CMS/00000001000000060000000000000202/index.m3u8?IAS
+
 4K影视,http://159.75.85.63:5828/4kys.php
 4K影视,http://nas.jdshipin.com:8801/4kys.php
 4K影视,http://111.11.123.37:6610/000000001000/6000000003000004748/index.m3u8?channel-id=wasusyt&Contentid=6000000003000004748&livemode=1&stbId=3
+4K影视,http://zteres.sn.chinamobile.com:6060/000000001000/6000000003000004748/index.m3u8?channel-id=wasusyt&Contentid=6000000003000004748&livemode=1&stbId=3
 
 4K超高清电影,http://159.75.85.63:5681/sxg.php?id=emdy4k_8000
+4K超高清电影,https://live.goodiptv.club/api/sxg.php?id=emdy4k_8000
 4K超高清电影,http://159.75.85.63:5681/sxg.php
+
+
 纯享4K,http://39.134.3.73:6610/000000001666/100000000100111083/1.m3u8
 纯享4K,http://39.134.115.163:8080/PLTV/88888910/224/3221225786/index.m3u8
 纯享4K,http://124.232.233.6:6060/000000001901/202200010028/index.m3u8?m3u8_level=2
@@ -729,13 +733,10 @@ loupe4K,https://d2dw21aq0j0l5c.cloudfront.net/playlist_3840x2160.m3u8
 苏州8K试验,http://ott.mobaibox.com/PLTV/88888888/224/3221228132/index.m3u8
 BTV纪实科教-8KSDR,http://159.75.85.63:6798
 
-4K超高清,http://159.75.85.63:5681/sxg.php?id=emdy4k_8000
-4K超高清电影,https://live.goodiptv.club/api/sxg.php?id=emdy4k_8000
-4k车载劲爆,https://vd2.bdstatic.com/mda-ncg1mhvhiy7fkgzs/sc/cae_h264_delogo/1647481028509277070/mda-ncg1mhvhiy7fkgzs.mp4
 4K电影,http://[2409:8087:5e01:34::20]:6610/ZTE_CMS/00000001000000060000000000000459/index.m3u8?IAS
-4K现场,http://itstar.top:4000/udp/239.49.8.222:6000
 
-4K影视,http://zteres.sn.chinamobile.com:6060/000000001000/6000000003000004748/index.m3u8?channel-id=wasusyt&Contentid=6000000003000004748&livemode=1&stbId=3
+
+
 
 
 
@@ -3109,6 +3110,8 @@ CCTV-央视台球,http://dbiptv.sn.chinamobile.com/PLTV/88888890/224/3221226956/
 纪实人文,http://kkwk1122.top/bestv.php?id=28
 第一财经,http://kkwk1122.top/bestv.php?id=21
 东方财经,http://kkwk1122.top/bestv.php?id=26
+
+BesTV,http://[2409:8087:5e01:34::30]:6610/ZTE_CMS/00000001000000060000000000000202/index.m3u8?IAS
 
 🍉｜iHOTV,#genre#
 
