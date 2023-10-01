@@ -1,5 +1,5 @@
  
-//==  Modify 2023/09/27 11:53:12  ==Cqlz== 
+//==  Modify 2023/10/01 12:28:22  ==Cqlz== 
 //☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ 
 
 🚲｜真 無 聊,#genre#
@@ -428,6 +428,23 @@ CCTV15,rtsp://115.153.245.70/PLTV/88888888/224/3221226988/85722541.smil
 CCTV17,rtsp://115.153.212.72/PLTV/88888888/224/3221226846/61397282.smil
 CCTV17,rtsp://115.153.233.154/PLTV/88888888/224/3221226846/61397282.smil
 CCTV17,rtsp://115.153.245.70/PLTV/88888888/224/3221226846/61397282.smil
+
+CCTV1,http://171.221.240.108:808/hls/01/index.m3u8
+CCTV2,http://171.221.240.108:808/hls/02/index.m3u8
+CCTV3,http://171.221.240.108:808/hls/03/index.m3u8
+CCTV4,http://171.221.240.108:808/hls/04/index.m3u8
+CCTV5,http://171.221.240.108:808/hls/05/index.m3u8
+CCTV6,http://171.221.240.108:808/hls/06/index.m3u8
+CCTV7,http://171.221.240.108:808/hls/07/index.m3u8
+CCTV8,http://171.221.240.108:808/hls/08/index.m3u8
+CCTV9,http://171.221.240.108:808/hls/09/index.m3u8
+CCTV10,http://171.221.240.108:808/hls/10/index.m3u8
+CCTV11,http://171.221.240.108:808/hls/11/index.m3u8
+CCTV12,http://171.221.240.108:808/hls/12/index.m3u8
+CCTV13,http://171.221.240.108:808/hls/13/index.m3u8
+CCTV14,http://171.221.240.108:808/hls/14/index.m3u8
+CCTV5+,http://171.221.240.108:808/hls/42/index.m3u8
+
 
 CCTV8K超高清,http://[2409:8087:2001:20:2800:0:df6e:eb02]/wh7f454c46tw3737653395_1580816352/ott.mobaibox.com/PLTV/3/224/3221228165/index.m3u8?icpid=3&RTS=1678665935&from=40&popid=40&hms_devid=2039&prioritypopid=40&vqe=3
 CCTV8K超高清,http://[2409:8087:2001:20:2800:0:df6e:eb02]/ott.mobaibox.com/PLTV/3/224/3221228165/index.m3u8
@@ -1229,19 +1246,6 @@ BTV纪实科教-8KSDR,http://159.75.85.63:6798
 延边卫视,http://live.ybtvyun.com/video/s10006-44f040627ca1/index.m3u8
 
 
-重庆新闻,https://live.goodiptv.club/api/cqyx.php?id=CQTVNewsHD
-重庆影视,https://live.goodiptv.club/api/cqyx.php?id=cqyingshiHD
-重庆社会与法,https://live.goodiptv.club/api/cqyx.php?id=CQTVTrendyHD
-重庆时尚生活,https://live.goodiptv.club/api/cqyx.php?id=cqssgwHD
-重庆文体娱乐,https://live.goodiptv.club/api/cqyx.php?id=cqwtylHD
-重庆新农村,https://live.goodiptv.club/api/cqyx.php?id=cqggncHD
-重庆少儿,https://live.goodiptv.club/api/cqyx.php?id=cqseHD
-重庆科教,https://live.goodiptv.club/api/cqyx.php?id=CQTVkejiaoHD
-重庆汽摩,https://live.goodiptv.club/api/cqyx.php?id=cqcarSD
-重庆移动,https://live.goodiptv.club/api/cqyx.php?id=mryyHD
-
-
-
 欢笑剧场,https://live.goodiptv.club/api/bestv.php?id=hxjc8m/8000000
 劲爆体育,https://live.goodiptv.club/api/bestv.php?id=jbtyhd8m/8000000
 快乐垂钓,https://live.goodiptv.club/api/bestv.php?id=klcd8m/8000000
@@ -1322,6 +1326,47 @@ CETV-4,https://live.goodiptv.club/api/cqyx.php?id=cetv-4SD
 靓妆,https://live.goodiptv.club/api/cqyx.php?id=liang
 
 书画频道,http://211.103.180.178:8234/live_hls/hdmi.m3u8
+
+
+🐟｜看 川 渝,#genre#
+
+重庆卫视,http://117.59.80.3/__cl/cg:live/__c/chongqingHD/__op/default/__f/index.m3u8
+四川卫视,http://117.59.80.3/__cl/cg:live/__c/sichuanHD/__op/default/__f/index.m3u8
+
+重庆新闻,http://117.59.80.3/__cl/cg:live/__c/CQTVNewsHD/__op/default/__f/index.m3u8
+重庆影视,http://117.59.80.3/__cl/cg:live/__c/cqyingshiHD/__op/default/__f/index.m3u8
+重庆社会与法,http://117.59.80.3/__cl/cg:live/__c/CQTVTrendyHD/__op/default/__f/index.m3u8
+重庆时尚生活,http://117.59.80.3/__cl/cg:live/__c/cqssgwHD/__op/default/__f/index.m3u8
+重庆文体娱乐,http://117.59.80.3/__cl/cg:live/__c/cqwtylHD/__op/default/__f/index.m3u8
+重庆新农村,http://117.59.80.3/__cl/cg:live/__c/cqggncHD/__op/default/__f/index.m3u8
+重庆少儿,http://117.59.80.3/__cl/cg:live/__c/cqseHD/__op/default/__f/index.m3u8
+重庆科教,http://117.59.80.3/__cl/cg:live/__c/CQTVkejiaoHD/__op/default/__f/index.m3u8
+爱看导视,http://117.59.80.3/__cl/cg:live/__c/aikanHD/__op/default/__f/index.m3u8
+重庆汽摩,http://117.59.80.3/__cl/cg:live/__c/cqcarSD/__op/default/__f/index.m3u8
+重庆移动,http://117.59.80.3/__cl/cg:live/__c/mryyHD/__op/default/__f/index.m3u8
+重广融媒,http://117.59.80.3/__cl/cg:live/__c/cqrongmei/__op/default/__f/index.m3u8
+
+重庆新闻,https://live.goodiptv.club/api/cqyx.php?id=CQTVNewsHD
+重庆影视,https://live.goodiptv.club/api/cqyx.php?id=cqyingshiHD
+重庆社会与法,https://live.goodiptv.club/api/cqyx.php?id=CQTVTrendyHD
+重庆时尚生活,https://live.goodiptv.club/api/cqyx.php?id=cqssgwHD
+重庆文体娱乐,https://live.goodiptv.club/api/cqyx.php?id=cqwtylHD
+重庆新农村,https://live.goodiptv.club/api/cqyx.php?id=cqggncHD
+重庆少儿,https://live.goodiptv.club/api/cqyx.php?id=cqseHD
+重庆科教,https://live.goodiptv.club/api/cqyx.php?id=CQTVkejiaoHD
+重庆汽摩,https://live.goodiptv.club/api/cqyx.php?id=cqcarSD
+重庆移动,https://live.goodiptv.club/api/cqyx.php?id=mryyHD
+
+四川卫视,http://171.221.240.108:808/hls/31/index.m3u8
+
+四川经济频道,http://171.221.240.108:808/hls/32/index.m3u8
+四川文化旅游,http://171.221.240.108:808/hls/33/index.m3u8
+四川新闻频道,http://171.221.240.108:808/hls/34/index.m3u8
+四川影视文艺,http://171.221.240.108:808/hls/35/index.m3u8
+四川星空购物,http://171.221.240.108:808/hls/36/index.m3u8
+四川-7 频道,http://171.221.240.108:808/hls/37/index.m3u8
+成都综合,http://171.221.240.108:808/hls/41/index.m3u8
+
 
 📡｜港 澳 台,#genre#
 
@@ -1714,6 +1759,7 @@ TV BRICS 俄罗斯中文,http://brics.bonus-tv.ru/cdn/brics/chinese/tracks-v1a1/
 熊猫频道,https://gcwbndks.v.kcdnvip.com/gcwbnd/ipanda1000_2/index.m3u8
 熊猫频道,https://gcwbndks.v.kcdnvip.com/gcwbnd/xiongmao01_2/index.m3u8
 熊猫频道,https://gcwbndks.v.kcdnvip.com/gcwbnd/xiongmao03_2/index.m3u8
+熊猫频道,http://udnhls.skilldns.com:80/qq.m3u8
 开国大典4K修复珍藏,https://link.jscdn.cn/1drv/aHR0cHM6Ly8xZHJ2Lm1zL3UvcyFBcWRaQXVqUUttYXpiUVJnSTFiVnJzVDNRSFk_ZT0yUDA5a0g
 
 军事评论,https://epg.pw/stream/a97767f126f84edb52e8344d91366034de22cd1beb45310cdf8cc368205421c1.m3u8
@@ -1724,6 +1770,9 @@ NASA Public Channel,https://ntv1.akamaized.net/hls/live/2014075/NASA-NTV1-HLS/ma
 NASA Public Channel,https://ntv2.akamaized.net/hls/live/2013923/NASA-NTV2-HLS/master_2000.m3u8
 爱自然,https://d18dyiwu97wm6q.cloudfront.net/playlist2160p.m3u8
 
+摄影频道,http://117.59.80.3/__cl/cg:live/__c/sheying/__op/default/__f/index.m3u8
+天元围棋,http://117.59.80.3/__cl/cg:live/__c/weiqi/__op/default/__f/index.m3u8
+
 书画频道,https://live.goodiptv.club/api/cqyx.php?id=shuhua
 书画频道,http://211.103.180.178:8234/live_hls/hdmi.m3u8
 
@@ -1731,9 +1780,7 @@ NASA Public Channel,https://ntv2.akamaized.net/hls/live/2013923/NASA-NTV2-HLS/ma
 快乐垂钓,http://dbiptv.sn.chinamobile.com/PLTV/88888888/224/3221226805/1.m3u8
 乐游,https://cntv.sbs/tv?auth=230927&id=qjs
 乐游,https://epg.pw/stream/96e5bf208b14d892538a6213397a817179224564183a1b62410374068e20e8f1.ctv
-我们旅行,https://dqhxk7sbp7xog.cloudfront.net/hls-live/goodtv/_definst_/liveevent/live-ch11-2.m3u8
 茶频道,https://cntv.sbs/tv?auth=230927&id=cpd
-新视觉,https://cntv.sbs/tv?auth=230927&id=xsj
 热门剧场,https://cntv.sbs/tv?auth=230927&id=rmjc
 热门综艺,https://cntv.sbs/tv?auth=230927&id=rmzy
 健康养生,https://cntv.sbs/tv?auth=230927&id=jkys#https://epg.pw/stream/ead2b082606fd17fca8eb097f7c824b274accd20c383114e2f6b35e23b81c2c0.ctv
