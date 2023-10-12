@@ -1,5 +1,5 @@
  
-//==  Modify 2023/10/11 12:32:38  ==Cqlz== 
+//==  Modify 2023/10/12 12:38:39  ==Cqlz== 
 //☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆ 
 
 🚲｜真 無 聊,#genre#
@@ -1467,6 +1467,12 @@ CETV-4,https://live.goodiptv.club/api/cqyx.php?id=cetv-4SD
 四川星空购物,http://171.221.240.108:808/hls/36/index.m3u8
 四川妇女儿童,http://171.221.240.108:808/hls/37/index.m3u8
 
+四川卫视,http://183.223.157.33:9901/tsfile/live/0123_1.m3u8?key=txiptv&url=tvzb.com
+四川经济频道,http://183.223.157.33:9901/tsfile/live/1000_1.m3u8?key=txiptv&url=tvzb.com
+四川文化旅游,http://183.223.157.33:9901/tsfile/live/1001_1.m3u8?key=txiptv&url=tvzb.com
+四川新闻频道,http://183.223.157.33:9901/tsfile/live/1003_1.m3u8?key=txiptv&url=tvzb.com
+四川科教频道,http://183.223.157.33:9901/tsfile/live/1005_1.m3u8?key=txiptv&url=tvzb.com
+峨眉电影,http://183.223.157.33:9901/tsfile/live/1006_1.m3u8?key=txiptv&url=tvzb.com
 
 四川文化旅游,http://sgx.xxray.cc/IPTV/sxg.php?id=SCTV-2-H265_4000
 四川经济频道,http://sgx.xxray.cc/IPTV/sxg.php?id=SCTV-3-H265_4000
@@ -1475,7 +1481,9 @@ CETV-4,https://live.goodiptv.club/api/cqyx.php?id=cetv-4SD
 四川妇女儿童,http://sgx.xxray.cc/IPTV/sxg.php?id=SCTV-7-_4000
 四川科教频道,http://sgx.xxray.cc/IPTV/sxg.php?id=SCTV-ggSCTV-8_4000
 四川乡村频道,http://sgx.xxray.cc/IPTV/sxg.php?id=SCTV-kjSCTV-9-_4000
-四川峨嵋电影,http://sgx.xxray.cc/IPTV/sxg.php?id=emdygqH265_4000
+峨嵋电影,http://sgx.xxray.cc/IPTV/sxg.php?id=emdygqH265_4000
+
+
 
 成都新闻综合,http://171.221.240.108:808/hls/41/index.m3u8
 成都新闻综合,http://sgx.xxray.cc/IPTV/sxg.php?id=CDTV-1_4000
@@ -1613,6 +1621,9 @@ imodeTV,http://player2.juyun.tv/camera/80238159.m3u8
 香港卫视,http://zhibo.hkstv.tv/livestream/mutfysrq/playlist.m3u8
 香港卫视,http://zhibo.hkstv.tv:80/livestream/mutfysrq.flv
 
+凤凰资讯,http://[2409:8087:2001:20:2800:0:df6e:eb27]:80/wh7f454c46tw3352677969_1732462333/ott.mobaibox.com/PLTV/3/224/3221228524/index.m3u8
+凤凰中文,http://[2409:8087:2001:20:2800:0:df6e:eb24]:80/wh7f454c46tw3553140416_-2021535160/ott.mobaibox.com/PLTV/3/224/3221228527/index.m3u8
+凤凰香港,http://[2409:8087:2001:20:2800:0:df6e:eb1d]:80/ott.mobaibox.com/PLTV/1/224/3221228530/1.m3u8
 
 凤凰资讯,http://171.110.42.48:8181/tsfile/live/1001_1.m3u8
 凤凰中文,http://171.110.42.48:8181/tsfile/live/1009_1.m3u8
@@ -1623,6 +1634,11 @@ imodeTV,http://player2.juyun.tv/camera/80238159.m3u8
 凤凰中文,http://sgx.xxray.cc/IPTV/sxg.php?id=test1_4000
 凤凰资讯,https://live.goodiptv.club/api/sxg.php?id=test2_4000
 
+凤凰资讯,http://42.81.252.22/1301-tx.otvstream.otvcloud.com/otv/skcc/live/channel52002/index.m3u8
+凤凰中文,http://42.81.252.22/1301-tx.otvstream.otvcloud.com/otv/skcc/live/channel52003/index.m3u8
+凤凰资讯,http://180.97.247.27/1301-tx.otvstream.otvcloud.com/otv/skcc/live/channel52002/index.m3u8
+凤凰中文,http://180.97.247.27/1301-tx.otvstream.otvcloud.com/otv/skcc/live/channel52003/index.m3u8
+
 凤凰香港, http://php.17186.eu.org/phtv/fhhk.m3u8$1280x720
 凤凰香港, http://php.17186.eu.org/phtv/fhxg.m3u8
 
@@ -1630,7 +1646,7 @@ imodeTV,http://player2.juyun.tv/camera/80238159.m3u8
 凤凰中文,http://r.jdshipin.com/cCCzW#http://115.149.139.141:10001/tsfile/live/1001_1.m3u8
 
 凤凰资讯,http://dbiptv.sn.chinamobile.com/PLTV/88888890/224/3221226546/index.m3u8$720x576
-凤凰中文,http://dbiptv.sn.chinamobile.com/PLTV/88888890/224/3221226547/index.m3u8
+凤凰中文,http://dbiptv.sn.chinamobile.com/PLTV/88888890/224/3221226547/index.m3u8$720x576
 凤凰资讯,http://111.20.40.166:80/PLTV/88888893/224/3221226546/index.m3u8
 凤凰资讯,http://lcx-olt.8866.org:8181/tsfile/live/1069_1.m3u8$1920x1080
 
@@ -4502,7 +4518,7 @@ DJ民谣《九九女儿红》《山谷里的思念》歌声甜美充满情谊,ht
 2021年最好听的DJ串烧,https://vdse.bdstatic.com//cd396057d1fbcb12f0600d38a16effbc.mp4
 《哑巴新娘...》,https://vdse.bdstatic.com//1a3fdd4def6feeef6a49f4c2bfd9fec2.mp4
 女生版DJ洗脑神曲,https://vdse.bdstatic.com//6d2f84ad5762c818efd8dc210d8743c6.mp4
-方哥直播分享群,https://vdse.bdstatic.com//6d39df48360bdb12f73800397c4a6c02.mp4
+爱不需要任何理由,https://vdse.bdstatic.com//6d39df48360bdb12f73800397c4a6c02.mp4
 2021年网络火爆伤感情歌6首,https://vdse.bdstatic.com//80e0473f97055cec1c9c76c1c7e5498a.mp4
 2021热门伤感DJ,https://vdse.bdstatic.com//06b4e9b185b843e694e4d20e9b0a0aac.mp4
 几首比较火的DJ情歌,https://vdse.bdstatic.com//4d7e8fe409b2ba9e08b179de8e146fa3.mp4
@@ -4551,7 +4567,7 @@ DJ情歌串烧《痴情恋歌》《红颜知己》《事与愿违》《缘分相
 DJ伤感好听《红颜知己》《事与愿违》《缘分相遇》《知情念歌》HD,https://vdse.bdstatic.com//1a7b05ab4eab2d68a679e442f4d80fab.mp4
 DJ情歌《昨夜的我又梦到了你》《心上的人儿你在哪》等HD,https://vdse.bdstatic.com//09b76fc9762763350288fb96047ec820.mp4
 《给我一把爱情火》《无情风雨无情的你》《昨夜的我又梦到了你》HD,https://vdse.bdstatic.com//63a770491e7bae0ebe661452c27eaf33.mp4
-方哥直播分享群,https://15799848.s21v.faiusr.com/58/ABUIABA6GAAgksy04wUo17eY6Qc.mp4
+喜迎新年到,https://15799848.s21v.faiusr.com/58/ABUIABA6GAAgksy04wUo17eY6Qc.mp4
 新歌上线,https://vd4.bdstatic.com/mda-nc005jwr87jrdssh/sc/cae_h264_delogo/1646179767551234681/mda-nc005jwr87jrdssh.mp4
 2023DJ洗脑神曲,https://vdse.bdstatic.com//6d2f84ad5762c818efd8dc210d8743c6.mp4
 2023年最火伤感音乐,https://vdse.bdstatic.com//6d39df48360bdb12f73800397c4a6c02.mp4
@@ -5665,6 +5681,27 @@ DJ爆红情歌,https://vd3.bdstatic.com/mda-ndv4c2sjkixp16nw/hd/cae_h264_delogo/
 福建武夷山玉女峰,http://gcbsc.v.live.baishancdnx.cn/gc/wysynf_1/index.m3u8
 为天使护航,http://gcksc.v.kcdnvip.com/gc/zsslsfwsgz_1/index.m3u8
 为天使护航,http://gcbsc.v.live.baishancdnx.cn/gc/zsslsfwsgz_1/index.m3u8
+
+杭州·富阳水上运动中心馆亚运慢直播,http://maomao.kandiantv.cn/m3u8.php?/migu/671441428
+杭州·运河亚运公园馆亚运慢直播,http://maomao.kandiantv.cn/m3u8.php?/migu/671652950
+杭州·淳安自行车场馆群亚运慢直播,http://maomao.kandiantv.cn/m3u8.php?/migu/671652979
+金华体育中心亚运藤球馆慢直播,http://maomao.kandiantv.cn/m3u8.php?/migu/672500735
+绍兴·攀岩馆亚运会慢直播,http://maomao.kandiantv.cn/m3u8.php?/migu/673261447
+宁波·亚帆馆亚运慢直播,http://maomao.kandiantv.cn/m3u8.php?/migu/673257391
+龙胜龙脊梯田,http://maomao.kandiantv.cn/m3u8.php?/migu/671441336
+大藤峡,http://maomao.kandiantv.cn/m3u8.php?/migu/671442114
+邕城,http://maomao.kandiantv.cn/m3u8.php?/migu/671442018
+遇龙河,http://maomao.kandiantv.cn/m3u8.php?/migu/671653242
+开封金明广场,http://maomao.kandiantv.cn/m3u8.php?/migu/698638130
+开封清明上河园西门,http://maomao.kandiantv.cn/m3u8.php?/migu/698638118
+开封连霍高速路口,http://maomao.kandiantv.cn/m3u8.php?/migu/698638091
+开封鼓楼,http://maomao.kandiantv.cn/m3u8.php?/migu/681448619
+武汉光谷,http://maomao.kandiantv.cn/m3u8.php?/migu/670426991
+武汉江汉关,http://maomao.kandiantv.cn/m3u8.php?/migu/670426904
+武汉黄鹤楼,http://maomao.kandiantv.cn/m3u8.php?/migu/670427051
+钱塘江,http://maomao.kandiantv.cn/m3u8.php?/migu/647370520
+
+
 🍁｜World,#genre#
 
 亚洲新闻,http://d2e1asnsl7br7b.cloudfront.net/7782e205e72f43aeb4a48ec97f66ebbe/index_5.m3u8?zshijd
