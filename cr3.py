@@ -463,6 +463,13 @@ CineMan ExExEx TWO,http://vl05t7es.rostelekom.xyz/iptv/QAX2K7HNCDZF2N/20090/inde
 解说AV8,https://kmi.522n.com/20220218/hzwPWYyD/index.m3u8
 解说AV9,https://kmi.522n.com/20220426/jobItuzZ/index.m3u8
 解说AV10,https://kmi.522n.com/20201228/bw8Q9zph/index.m3u8
+金发巨乳小辣妹，猥琐黑吊老大叔,https://kmi.522n.com/20231018/M2QyMjQ1NW/135802/1280/hls/decrypt/index.m3u8
+光头上司胯下蹲，记住我叫水川润,https://kmi.522n.com/20231017/ZGFhNjE1OG/211003/1280/hls/decrypt/index.m3u8
+森日向子_日日理发忙，夜夜做新郎,https://kmi.522n.com/20231016/NmNlYmVhZm/181402/1280/hls/decrypt/index.m3u8
+八掛海_心爱的女友被大叔调教搞坏,https://kmi.522n.com/20231018/NWRjNTE0Zj/222202/1280/hls/decrypt/index.m3u8
+旷世神作！AV经典,https://kmi.522n.com/20231016/MWI4OTk1N2/141403/1280/hls/decrypt/index.m3u8
+桥本有菜_有朋至远方来，不亦乐乎,https://kmi.522n.com/20231013/MDY3ZGJlZW/221403/1280/hls/decrypt/index.m3u8
+
 HND-893深田,https://siwazywcdn2.com:5278/zhongwenzimu/WkPiX4Gg/index.m3u8
 ADN-291夏目彩春,https://siwazywcdn2.com:5278/zhongwenzimu/KnjeVorl/index.m3u8
 SSNI-970新名,https://siwazywcdn2.com:5278/zhongwenzimu/QH2rbOFq/index.m3u8
