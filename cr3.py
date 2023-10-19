@@ -4,6 +4,85 @@ Japan HDV,http://87c576b1.cbilant.com/iptv/XP2DFA2ML2YEFG/6225/index.m3u8
 Japan HDV2,http://vl05t7es.rostelekom.xyz/iptv/QAX2K7HNCDZF2N/6225/indeindex.m3u8
 Fake Taxi HD,http://87c576b1.cbilant.com/iptv/XP2DFA2ML2YEFG/6202/index.m3u8
 Fake Taxi HD2,http://vl05t7es.rostelekom.xyz/iptv/QAX2K7HNCDZF2N/6202/index.m3u8
+彩虹e台,P2p://generationnexxxt.com:19806/9a97004e2ba44dbe8c914dbeadee4b2f
+彩虹电影台,P2p://generationnexxxt.com:19806/3ef7a7fd87a449768196614c6433b080
+LOOK TV,P2p://generationnexxxt.com:19806/22344863fe414c439c9308b4aa2c4d3d
+潘朵啦玩美台,P2p://generationnexxxt.com:19806/95a3bc8a9acc421eb9469b4c13353028
+惊艳成人电影台,P2p://generationnexxxt.com:19806/d50084be17bd4adc8857dbd9e9ebbf25
+松视1台,P2p://generationnexxxt.com:19806/036970456a824a099a71595b6baf3921
+松视2台,P2p://generationnexxxt.com:19806/966ca0ffb710420ca2544fd6cdf1097f
+PLAYBOY,P2p://generationnexxxt.com:19806/082597a99d8247a3a791f44314cdb233
+香蕉台,P2p://generationnexxxt.com:19806/7523ece4707041c3a7aeb64c26aec183
+松视3台,P2p://generationnexxxt.com:19806/b8f8ad4e4b8847b289491374ddebe9fd
+JStar极限台,P2p://generationnexxxt.com:19806/3dae125a616947bfbfbbb303f9223f64
+HAPPY,P2p://generationnexxxt.com:19806/56b9936bf2284a8c8ba7717b0f2cbe24
+K,P2p://generationnexxxt.com:19806/3f0ab1d712b24f2ab466ed283f8e7469
+PlayboyTV,http://tv.urllista.net/live/Artur86/Artur86/37061.m3u8
+PlayboyTVFHD,http://tv.urllista.net/live/Artur86/Artur86/41513.m3u8
+PlayboyTVHD,http://tv.urllista.net/live/Artur86/Artur86/40749.m3u8
+SEXHOTH265,http://tv.urllista.net/live/Artur86/Artur86/62837.m3u8
+SEXT6SENSO,http://tv.urllista.net/live/Artur86/Artur86/63701.m3u8
+Playboy LA,http://esrv.cc:80/Tassiana1/Anaissat2/41462.ts
+Playboy LA,http://loadbl2.online:8080/fatima4335/megatv1/39223
+Playboy LA,http://ccdn.so:80/joao5394/Cc839598/103483.ts
+Playboy LA,http://ccdn.so:80/joao5394/Cc839598/72221.ts
+Playboy LA,http://ccdn.so:80/joao5394/Cc839598/72224.ts
+Playboy LA,http://ccdn.so:80/joao5394/Cc839598/72222.ts
+Playboy LA,http://ccdn.so:80/vsabG/499AKVptc/103483.ts
+Playboy LA,http://ccdn.so:80/vsabG/499AKVptc/72221.ts
+Playboy LA,http://ccdn.so:80/vsabG/499AKVptc/72224.ts
+Playboy LA,http://ccdn.so:80/vsabG/499AKVptc/72222.ts
+Русская ночь,http://46.174.83.66/Russkaya_Noch/video.m3u8
+Extasy 4K,http://213.81.133.133:8080/extasy4k/video.m3u8
+Redlight HD,http://109.200.130.123:7032/play/353
+Redlight HD,http://93.152.174.144:4000/play/privatetv1/index.m3u8
+Redlight HD,http://93.152.174.144:4000/play/privatetv1/tracks-v1a1/index.m3u8
+Hustler HD,http://193.33.240.8:80/hustler_hd/video.m3u8
+Hustler TV,http://78.83.191.18:8000/play/a078
+Vivid Red HD,http://109.200.130.123:7032/play/a00g
+Erox,http://94.229.250.73:8008/play/a002
+Erotic 3,http://54.36.123.36:8080/PinkErotic3/video.m3u8
+
+
+👠｜VIP精品资源_3723,#genre#
+解说AV1,https://v.kdou5.com/20220331/2O5EiSZ7/index.m3u8
+解说AV2,https://vdsgp3.3p3942.cn/20220422/tvbDm1UD/index.m3u8
+寝取憧憬的叔母,https://cdn3.yuan-baidu.com/800k/m3u8/202010/20/4590c06ebd08/index.m3u8
+解说AV4,https://kmi.522n.com/20230331/NDVmMjQxNj/160055/1280/hls/decrypt/index.m3u8
+解说AV5,https://kmi.522n.com/20230309/NWUxMDE1Mz/175501/1280/hls/decrypt/index.m3u8
+解说AV6,https://kmi.522n.com/20230128/MzUwN2MzZG/174702/1280/hls/decrypt/index.m3u8
+解说AV7,https://kmi.522n.com/20220901/NTg0Mjg5N2/164818/1280/hls/decrypt/index.m3u8
+解说AV8,https://kmi.522n.com/20220218/hzwPWYyD/index.m3u8
+解说AV9,https://kmi.522n.com/20220426/jobItuzZ/index.m3u8
+解说AV10,https://kmi.522n.com/20201228/bw8Q9zph/index.m3u8
+HND-893深田,https://siwazywcdn2.com:5278/zhongwenzimu/WkPiX4Gg/index.m3u8
+ADN-291夏目彩春,https://siwazywcdn2.com:5278/zhongwenzimu/KnjeVorl/index.m3u8
+SSNI-970新名,https://siwazywcdn2.com:5278/zhongwenzimu/QH2rbOFq/index.m3u8
+DASD-819白城,https://siwazywcdn2.com:5278/zhongwenzimu/9EXSkId8/index.m3u8
+XVSR-586逢见莉香,https://siwazywcdn2.com:5278/zhongwenzimu/BS2qJGta/index.m3u8
+SCOP-697,https://siwazywcdn2.com:5278/zhongwenzimu/59LHYbi4/index.m3u8
+PRED-314山岸逢花,https://siwazywcdn2.com:5278/zhongwenzimu/P4Xu7bep/index.m3u8
+MDTM-626岬梓,https://siwazywcdn2.com:5278/zhongwenzimu/8bJU1SmG/index.m3u8
+WANZ-939 濑名,https://siwazywcdn2.com:5278/zhongwenzimu/q6svZgko/index.m3u8
+MIAA-235濑名,https://siwazywcdn2.com:5278/zhongwenzimu/YV7xtRCQ/index.m3u8
+MIFD-166桃山萌香,https://siwazywcdn2.com:5278/zhongwenzimu/RvKX2rnH/index.m3u8
+PRED-244香椎花乃,https://siwazywcdn2.com:5278/zhongwenzimu/NkXpBtx1/index.m3u8
+ssis-258奥田咲,https://siwazywcdn2.com:5278/zhongwenzimu/BT3EU0Zo/index.m3u8
+ssni-808鹰尾芽衣,https://siwazywcdn2.com:5278/zhongwenzimu/L9kmreDA/index.m3u8
+ssis-089葵司,https://siwazywcdn2.com:5278/zhongwenzimu/r8HbDuY7/index.m3u8
+SSNI-940葵司,https://siwazywcdn2.com:5278/zhongwenzimu/bk3Fe0Jt/index.m3u8
+ssni-778儿玉玲奈,https://siwazywcdn2.com:5278/zhongwenzimu/6Lwmk5xH/index.m3u8
+ssni-927山崎水爱,https://siwazywcdn2.com:5278/zhongwenzimu/sGaJ3TAK/index.m3u8
+ssni-779乙白沙也,https://siwazywcdn2.com:5278/zhongwenzimu/GrWsQLH1/index.m3u8
+ssis-096乙白沙也,https://siwazywcdn2.com:5278/zhongwenzimu/0GbVxCsv/index.m3u8
+ssni-989,https://siwazywcdn2.com:5278/zhongwenzimu/qiSH8T3J/index.m3u8
+ssni-783,https://siwazywcdn2.com:5278/zhongwenzimu/RyFetHz5/index.m3u8
+ssni-802,https://siwazywcdn2.com:5278/zhongwenzimu/oPM4z0bY/index.m3u8
+ssni-832,https://siwazywcdn2.com:5278/zhongwenzimu/WMkiBKyw/index.m3u8
+ssis-108,https://siwazywcdn2.com:5278/zhongwenzimu/bZXowNav/index.m3u8
+ssni-828,https://siwazywcdn2.com:5278/zhongwenzimu/FMriTsOa/index.m3u8
+ssni-824儿玉玲奈,https://siwazywcdn2.com:5278/zhongwenzimu/XNlqgRve/index.m3u8
+
 性侵微商成人店老板娘,https://t7.cdn2020.com/video/m3u8/2021/03/30/efd3fdff/index.m3u8
 性侵隔壁在夜场上班的性感少妇,https://t7.cdn2020.com/video/m3u8/2021/07/07/efda5044/index.m3u8
 性兽沉溺泳池7P乱交party ,https://t7.cdn2020.com/video/m3u8/2021/06/09/4497f545/index.m3u8
