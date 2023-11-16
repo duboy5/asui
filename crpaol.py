@@ -1,3 +1,5 @@
+https://fastly.jsdelivr.net/gh/tv189ymail/ku2023@main/%E8%A7%A3%E4%B9%90%E4%BC%9A/BOXJLHFL.txt
+https://agit.ai/pinghui/Barton/raw/branch/master/%e7%a6%8f%e5%88%a9%e5%a4%a7%e5%85%a8666.txt
 https://pan.shangui.cc/f/10bzTw/v（加密码）1.txt
 🇨🇳搬砖｜男神,#genre#
 搬砖男神精心制作。感受美好,https://vd3.bdstatic.com/mda-pd369avvets19gch/sc/cae_h264/1680582897997490362/mda-pd369avvets19gch.mp4
@@ -5007,11 +5009,11 @@ Beyond_海阔天空,https://vd2.bdstatic.com/mda-jccg84gp61a7n0ms/sc/mda-jccg84g
 车模视频,https://cloud.video.taobao.com//play/u/57349687/p/1/e/6/t/1/239846692034.mp4
 唱着情歌流着泪.孟小笛祁隆,https://15799848.s21v.faiusr.com/58/ABUIABA6GAAgtYHG4gUo6KjuzwE.mp4
 
-🔑福利密码获取,#genre#
-公众号：挺好分享,http://tv.nxog.top/m/404/xjj.php
-后台回复:VIP密码,http://tv.nxog.top/m/404/xjj.php
+🔑以下为vip频道,#genre#
+少小離家,http://tv.nxog.top/m/404/xjj.php
+客從何來,http://tv.nxog.top/m/404/xjj.php
 
-🔒搬砖｜松视_1868,#genre#
+🔒搬砖｜松视_58 96,#genre#
 国外直播源解析地址需要梯子，订阅，如有需要可联系本人https://15799848.s21v.faiusr.com/58/ABUIABA6GAAg5fTW4gUoypKv_AQ.mp4
 卫星机房专用30,http://194.116.150.47:1935/vxtv/live_720p/chunklist_w1156491225.m3u8
 卫星机房专用36,http://59ec5453559f0.streamlock.net:1935/JennyLive/JennyLive/playlist.m3u8
@@ -5058,7 +5060,7 @@ K,mitv://135.148.104.228:19806/1aec46d506634015a1276c5e4d846976
 香蕉台欧美版,http://live.redtraffic.xyz:80/milf.m3u8
 
 
-🔒搬砖｜传媒_1868,#genre#
+🔒搬砖｜传媒_58 96,#genre#
 04年极品白丝嫩足,https://t21.cdn2020.com/video/m3u8/2023/02/01/18ac5bce/index.m3u8
 18岁小嫩妹辍学做外围-田伯光,https://t21.cdn2020.com/video/m3u8/2023/04/13/d7cb73d8/index.m3u8
 18岁学妹背着男友偷情-唐伯虎,https://t21.cdn2020.com/video/m3u8/2023/03/07/7a58b113/index.m3u8
@@ -6642,7 +6644,7 @@ ADN-459 为了最爱的丈夫守住身体-加藤结衣,https://t21.cdn2020.com/v
 SDDE-692 催淫洗脑-岩泽香代 萌波铃,https://t21.cdn2020.com/video/m3u8/2023/04/25/d4d89919/index.m3u8
 AARM-172 穿着可爱衣装 一边走光一边足交奉仕的女子,https://t21.cdn2020.com/video/m3u8/2023/04/25/70e0470e/index.m3u8
 
-🔒新麻豆_1868,#genre#
+🔒新麻豆_58 96,#genre#
 补最新麻豆02,https://47b61.cdnedge.live/file/avple-images/hls/6167172d51121708a790a1b9/playlist.m3u8
 补最新麻豆04,https://47b61.cdnedge.live/file/avple-images/hls/6167163d51121708a790a1b7/playlist.m3u8
 补最新麻豆06,https://47b61.cdnedge.live/file/avple-images/hls/6167160151121708a790a1b6/playlist.m3u8
@@ -6738,7 +6740,7 @@ AARM-172 穿着可爱衣装 一边走光一边足交奉仕的女子,https://t21.
 新麻豆650,https://47b61.cdnedge.live/file/avple-images/hls/6070548990160a18a06bac73/playlist.m3u8
 新麻豆657,https://47b61.cdnedge.live/file/avple-images/hls/606eedf13d938869f8b4803e/playlist.m3u8
 
-🔒日韩_1868,#genre#
+🔒日韩_58 96,#genre#
 carib-002,https://fc.maa1808.com/c/fpsvmyqlej/fpsvmyqlej.m3u8
 carib-004,https://fc.maa1808.com/f/xuyanbincr/xuyanbincr.m3u8
 carib-146,https://fc.maa1808.com/c/nofftnyelj/nofftnyelj.m3u8
@@ -10640,7 +10642,7 @@ ayami,https://fc.imgscloud.com/d/bchdfcildc/bchdfcildc.m3u8
 北条麻妃,https://fc.imgscloud.com/n/coofalhliu/coofalhliu.m3u8
 Beanpaste,https://fc.imgscloud.com/c/edgnokzuzi/edgnokzuzi.m3u8
 
-🔒番號_1868,#genre#
+🔒番號_58 96,#genre#
 AARM-046,https://t15.cdn2020.com:12339/video/m3u8/2022/01/20/fa9172db/index.m3u8
 AARM-066,https://t17.cdn2020.com:12341/video/m3u8/2022/04/04/e61cb482/index.m3u8
 ABP-287,https://t17.cdn2020.com:12341/video/m3u8/2022/03/31/19d5be2b/index.m3u8
@@ -13927,7 +13929,7 @@ XVSR-684 泡姫桃源郷-姫咲はな,https://t21.cdn2020.com/video/m3u8/2023/02
 RBD-194 美丽的主播-長澤あずさ,https://t21.cdn2020.com/video/m3u8/2023/02/16/740df56a/index.m3u8
 SDMT-444 美爆乳生徒会長女子校生-長澤あずさ,https://t21.cdn2020.com/video/m3u8/2023/02/16/912f6971/index.m3u8
 
-🔒刺激｜彩蛋,_1868,#genre#
+🔒刺激｜彩蛋_58 96,#genre#
 恶魔美女1,https://stream4k.embeddrive.net/playlists/d421cfa8-864e-464b-8778-a600a13344ba/cf.m3u8
 湖恐怖2,https://stream4k.embeddrive.net/playlists/816f3331-f70d-435c-aa67-031c85bab4f7/cf.m3u8
 笼子里的女孩 / 恐怖色情3,https://stream4k.embeddrive.net/playlists/3f3d5cbf-fe1d-4892-8a14-bc77f2764e44/cf.m3u8
@@ -14038,7 +14040,7 @@ MyCamTV 年轻女孩,http://live.mycamtv.com/young.m3u8
 僵尸 - 罢工： 起源48,https://stream4k.embeddrive.net/playlists/b6881343-852a-40a1-9238-545b98d80184/cf.m3u8
 捕食者 迪克猎人49,https://stream4k.embeddrive.net/playlists/142e0205-ce5a-484c-8296-e18fb84b7e02/cf.m3u8
 
-🔒一本道2K_1868,#genre#
+🔒一本道2K_58 96,#genre#
 一本道720P16,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181125/1/1bd/081815_137-1pon/index.m3u8
 一本道720P17,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181125/1/1bd/081615_136-1pon/index.m3u8
 一本道720P18,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181125/1/1bd/081515_135-1pon/index.m3u8
@@ -14076,7 +14078,7 @@ MyCamTV 年轻女孩,http://live.mycamtv.com/young.m3u8
 一本道720P50部,https://videocdnbaidu.rhsj520.com/2/rnmy2/20181123/5/101315_170-1pon/index.m3u8
 
 
-🔒无码_1868,#genre#
+🔒无码_58 96,#genre#
 Carib-012318-589,https://siwazywcdn2.com:5278//ribenwuma/sGfp8Fnj/index.m3u8
 Paco-120418_390,https://siwazywcdn2.com:5278//ribenwuma/rLne0qBZ/index.m3u8
 10musume_050719_01,https://siwazywcdn2.com:5278//ribenwuma/ZGlXDHgV/index.m3u8
@@ -14633,7 +14635,7 @@ pondo-793,https://fc.maa1808.com/f/kpprkumlkh/kpprkumlkh.m3u8
 204k,https://videos3.naibago.com/20220406/220327a0379/index.m3u8
 
 
-🔒番号2K_1868,#genre#
+🔒番号2K_58 96,#genre#
 16/aaf06750/index.m3u8
 XVSR-586,https://siwazywcdn2.com:5278/zhongwenzimu/BS2qJGta/index.m3u8
 XVSR-596,https://t10.cdn2020.com:12335/video/m3u8/2021/08/14/136a5115/index.m3u8
@@ -18763,7 +18765,7 @@ PGD-928-女子校生 栄川乃亜,http://ginocdn.bybzj.com:8091/youma/20180501/P
 
 
 
-🔒🇨🇳｜永濑女神专场_1868,#genre#
+🔒🇨🇳｜永濑女神专场_58 96,#genre#
 RCTD-341,https://siwazywcdn2.com:5278//zhongwenzimu/01l52txJ/index.m3u8
 mide-821小野六花,https://t4s.cdn2020.com/video/m3u8/2020/09/25/31eaeb70/index.m3u8
 mide-784小野六花,https://t6s.cdn2020.com/video/m3u8/2021/02/05/ddf896d6/index.m3u8
@@ -18980,7 +18982,7 @@ hmn-112北野未奈,https://t16.cdn2020.com:12340/video/m3u8/2022/02/14/4e2edbe2
 
 
 
-🔒特殊+补充_1868,#genre#
+🔒特殊+补充_58 96,#genre#
 MIDV-290 美少女子宮-伊織ひなの,https://t21.cdn2020.com/video/m3u8/2023/03/30/3982e181/index.m3u8
 MUKC-032 穿着盛装在发情-皆月ひかる,https://t21.cdn2020.com/video/m3u8/2023/03/30/dec2df1a/index.m3u8
 性瘾富家千金沉沦肉棒无法自拔,https://t21.cdn2020.com/video/m3u8/2023/03/29/c4f90004/index.m3u8
@@ -20655,7 +20657,7 @@ MXGS-741 未亡人奴-水沢のの,https://t21.cdn2020.com/video/m3u8/2023/01/25
 BIJN-235 人妻性欲解放-若宮穂乃,https://t21.cdn2020.com/video/m3u8/2023/01/25/f014db89/index.m3u8
 NACR-617 美女们喜欢被折磨乳头-上坂めい,https://t21.cdn2020.com/video/m3u8/2023/01/25/8d50f613/index.m3u8
 
-🔒🇰🇷康师傅｜新绿茶_1868,#genre#
+🔒🇰🇷康师傅｜新绿茶_58 96,#genre#
 Curiosa（珍品）2019【法国】Noémie Merlant（1988）,https://cdn8.yzzy-tv-cdn.com/20220709/2966_6d16f899/index.m3u8
 Diario de Una Ninfómana（欲乱日记）2008【西班牙】Belén Fabra（1977）,https://sd1.taopianplay1.com:43333/c56b1bc09da3/HD/2022-09-21/1/9424e9f030bc/cce9c994df97/playlist.m3u8
 El Cadáver de Anna Fritz（停尸姦／安娜·弗里茨的尸体）2015【西班牙】Alba Ribas（1988）,https://cdn7.vipbf-video.com/20220702/3016_e9423ba2/index.m3u8
@@ -21700,7 +21702,7 @@ MD反叛女学生的逆袭-玥可岚,https://t11.cdn2020.com:12336/video/m3u8/20
 中国女孩在监狱第4部分,https://13216.vod.redtraffic.xyz/ph57e3d9618a6bd/play.m3u8
 中国女孩的后台裸照,https://1244.vod.adultiptv.net/ph57c46d6c4cbde/play.m3u8
 
-🔒户外｜搬砖_1868,#genre#
+🔒户外｜搬砖_58 96,#genre#
 户外一姐02-28勾引两小伙做爱秒射,https://t6s.cdn2020.com/video/m3u8/2021/02/28/2f02c89d/index.m3u8
 户外一姐02-28真实勾引吃夜宵大哥打野战,https://t6s.cdn2020.com/video/m3u8/2021/02/28/b9b19c95/index.m3u8
 户外一姐叶子02-20真实勾引路人厕所做爱,https://t6s.cdn2020.com/video/m3u8/2021/02/22/02ef1957/index.m3u8
@@ -21835,7 +21837,7 @@ MD反叛女学生的逆袭-玥可岚,https://t11.cdn2020.com:12336/video/m3u8/20
 换妻性爱治疗之旅EP1性爱篇饥渴熟女-苏娅,https://t11.cdn2020.com:12336/video/m3u8/2021/09/07/16784afe/index.m3u8
 换妻性爱治疗之旅EP1治疗篇,https://t11.cdn2020.com:12336/video/m3u8/2021/09/04/f480888d/index.m3u8
 
-🔒推拿｜主播_1868,#genre#
+🔒推拿｜主播_58 96,#genre#
 大一学妹扒开多汁嫩穴,https://t12.cdn2020.com:12337/video/m3u8/2021/11/11/012f2388/index.m3u8
 大一小妹和男友在宿舍做爱直播,https://t12.cdn2020.com:12337/video/m3u8/2021/11/01/53092bb3/index.m3u8
 大一小妹妹放假前在宿舍扣逼给大家看,https://t7.cdn2020.com/video/m3u8/2021/06/27/91add1ef/index.m3u8
@@ -22048,7 +22050,7 @@ MD反叛女学生的逆袭-玥可岚,https://t11.cdn2020.com:12336/video/m3u8/20
 姐妹和房东玩双飞,https://t15.cdn2020.com:12339/video/m3u8/2022/01/14/f1576873/index.m3u8
 姐妹在山上做直播色诱捡木头的草帽大叔,https://ckcdnz3.cdn2020.com/video/
 
-🔒大人频道2_1868,#genre#
+🔒大人频道2_58 96,#genre#
 SET-009c-僕生中出人妻 篠田ゆう,http://videocdn.quweikm.com:8091/20180730/SET-009c/index.m3u8
 SERO-0205c-抜14発中出  武井麻希,http://videocdn.quweikm.com:8091/20180730/SERO-0205c/index.m3u8
 SERO-0272c-男性主導の体位 上原亜衣,http://videocdn.quweikm.com:8091/20180730/SERO-0272c/index.m3u8
@@ -22601,7 +22603,7 @@ SET-010c-巨乳美人,http://videocdn.quweikm.com:8091/20180730/SET-010c/index.m
 C0930-ki170604 片桐舞 26歳,http://videocdn.quweikm.com:8091/20181101/hd_c0930-ki170604/index.m3u8
 C0930-ki170704 野田歩 38歳,http://videocdn.quweikm.com:8091/20181101/hd_c0930-ki170704/ind
 
-🔒会员1_1868,#genre#
+🔒会员1_58 96,#genre#
 164,https://u89ey.cdnedge.live/file/avple-images/hls/618b973d52fe307992e9158a/playlist.m3u8
 165,https://d862cp.cdnedge.live/file/avple-images/hls/618b97b552fe307992e9158b/playlist.m3u8
 166,https://e2fa6.cdnedge.live/file/avple-images/hls/618b96c552fe307992e91589/playlist.m3u8
@@ -22624,7 +22626,7 @@ C0930-ki170704 野田歩 38歳,http://videocdn.quweikm.com:8091/20181101/hd_c093
 183,https://q2cyl7.cdnedge.live/file/avple-images/hls/618624b526bdd144b598cbd3/playlist.m3u8
 184,https://je40u.cdnedge.live/file/avple-images/hls/618463a6fddb3b0ce1f32687/playlist.m3u8
 
-🔒会员2_1868,#genre#
+🔒会员2_58 96,#genre#
 女教師-二宮沙樹,https://t16.cdn2020.com:12340/video/m3u8/2022/02/21/4bbc6102/index.m3u8
 本番解禁-KAORI,https://t16.cdn2020.com:12340/video/m3u8/2022/02/21/89977a3f/index.m3u8
 家庭教師-藤北彩香,https://t16.cdn2020.com:12340/video/m3u8/2022/02/21/e182a7f8/index.m3u8
@@ -22661,7 +22663,7 @@ BOGA BOGA-すみれ美香,https://v1s.cdn2020.com/video/m3u8/2019/07/28/76750c0c
 ハーフを飼育中-亜美,https://t2s.cdn2020.com/video/m3u8/2019/07/25/007bad0a/index.m3u8
 
 
-🔒会员1_1868,#genre#
+🔒会员1_58 96,#genre#
 japan-キッズステーション,vjms://14.102.154.165:8500:3502/live/cid=494&delay=200&httpbuf=200&memory=50
 japan-ディスカバリーチャンネル,vjms://14.102.154.165:8500:3502/live/cid=496&delay=200&httpbuf=200&memory=50
 japan-ヒストリーチャンネル,vjms://14.102.154.165:8500:3502/live/cid=219&delay=200&httpbuf=200&memory=50
@@ -22725,13 +22727,13 @@ japan-FOXsports,vjms://14.102.154.165:8500:3502/live/cid=57&delay=200&httpbuf=20
 japan-GAORA,vjms://14.102.154.165:8500:3502/live/cid=413&delay=200&httpbuf=200&memory=50
 japan-ファミリー劇場,vjms://14.102.154.165:8500:3502/live/cid=493&delay=200&httpbuf=200&memory=50
 
-🔒会员_1868,#genre#
+🔒会员_58 96,#genre#
 carib-002,https://fc.maa1808.com/c/fpsvmyqlej/fpsvmyqlej.m3u8
 carib-004,https://fc.maa1808.com/f/xuyanbincr/xuyanbincr.m3u8
 carib-146,https://fc.maa1808.com/c/nofftnyelj/nofftnyelj.m3u8
 carib-182,https://fc.maa1808.com/f/tveemkomvr/tveemkomvr.m3u8
 
-🔒会员1_1868,#genre#
+🔒会员1_58 96,#genre#
 C0930-PLA0101 人妻斬り 木並 則子 55歳,https://vip1.slbfsl.com/20221027/KKuVthfN/index.m3u8
 C0930-PLA0101 人妻斬り 木並 則子 55歳,https://askzybf.com/20221125/1aLGQbSU/index.m3u8
 C0930-PLA0101 人妻斬り 木並 則子 55歳,https://vod3.ttbfp5.com/20230329/F1wnYmsJ/index.m3u8
@@ -22792,7 +22794,7 @@ SSN-I-647 一ヶ月間の禁欲の果てに彼女の親友と僕が浮気SEXだ�
 被視為噩夢性處理工具的年輕妻子,https://vip2.slbfsl.com/20230330/y1eK4CKp/index.m3u8
 
 
-🔒内测--财_1868,#genre#
+🔒内测--财_58 96,#genre#
 精彩合集,https://n370amhhas.sdluquan.com/20200426/fVqzPSTD/index.m3u8?300
 表姑3p战,https://t6s.cdn2020.com/video/m3u8/2021/02/18/bc7fe04c/index.m3u8
 偷飞双飞,https://dadi-bo.com/20181220/5uW8NYYC/800kb/hls/index.m3u8
@@ -22899,7 +22901,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 打工地方和人气,https://0yefiks35y.motorjn.com/20210908/niMxlGrg/index.m3u8?300
 我的女友被爸爸,https://0yefiks35y.motorjn.com/20210911/wLwa2lwq/index.m3u8?300
 
-📻福利电台_1868,#genre#
+📻福利电台_58 96,#genre#
 📻淫妇本色01,https://audio.yazhouseba.co/audio/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B2/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B201.mp3
 📻淫妇本色02,https://audio.yazhouseba.co/audio/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B2/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B202.mp3
 📻淫妇本色03,https://audio.yazhouseba.co/audio/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B2/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B203.mp3
@@ -22918,7 +22920,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻淫妇本色16,https://audio.yazhouseba.co/audio/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B2/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B216.mp3
 📻使用文本请保留出处,https://audio.yazhouseba.co/audio/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B2/%E6%B7%AB%E5%A6%87%E6%9C%AC%E8%89%B216.mp3
 
-📻电台2_1868,#genre#
+📻电台2_58 96,#genre#
 📻乖妈妈的小骚逼01,https://audio.yazhouseba.co/audio/%E4%B9%96%E5%A6%88%E5%A6%88%E7%9A%84%E5%B0%8F%E9%AA%9A%E9%80%BC%E7%AC%AC%E4%B8%80%E9%83%A8/%E4%B9%96%E5%A6%88%E5%A6%88%E7%9A%84%E5%B0%8F%E9%AA%9A%E9%80%BC%E7%AC%AC%E4%B8%80%E9%83%A801.mp3
 📻乖妈妈的小骚逼02,https://audio.yazhouseba.co/audio/%E4%B9%96%E5%A6%88%E5%A6%88%E7%9A%84%E5%B0%8F%E9%AA%9A%E9%80%BC%E7%AC%AC%E4%B8%80%E9%83%A8/%E4%B9%96%E5%A6%88%E5%A6%88%E7%9A%84%E5%B0%8F%E9%AA%9A%E9%80%BC%E7%AC%AC%E4%B8%80%E9%83%A802.mp3
 📻乖妈妈的小骚逼03,https://audio.yazhouseba.co/audio/%E4%B9%96%E5%A6%88%E5%A6%88%E7%9A%84%E5%B0%8F%E9%AA%9A%E9%80%BC%E7%AC%AC%E4%B8%80%E9%83%A8/%E4%B9%96%E5%A6%88%E5%A6%88%E7%9A%84%E5%B0%8F%E9%AA%9A%E9%80%BC%E7%AC%AC%E4%B8%80%E9%83%A803.mp3
@@ -22944,7 +22946,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻乖妈妈的小骚逼23,https://audio.yazhouseba.co/audio/%E4%B9%96%E5%A6%88%E5%A6%88%E7%9A%84%E5%B0%8F%E9%AA%9A%E9%80%BC%E7%AC%AC%E4%B8%80%E9%83%A8/%E4%B9%96%E5%A6%88%E5%A6%88%E7%9A%84%E5%B0%8F%E9%AA%9A%E9%80%BC%E7%AC%AC%E4%B8%80%E9%83%A824.mp3
 
 
-📻电台3_1868,#genre#
+📻电台3_58 96,#genre#
 📻我做骚妻1,https://audio.yazhouseba.co/audio/%E6%88%91%E5%81%9A%E9%AA%9A%E8%B4%A7/%E6%88%91%E5%81%9A%E9%AA%9A%E8%B4%A701.mp3
 📻我做骚妻2,https://audio.yazhouseba.co/audio/%E6%88%91%E5%81%9A%E9%AA%9A%E8%B4%A7/%E6%88%91%E5%81%9A%E9%AA%9A%E8%B4%A702.mp3
 📻我做骚妻3,https://audio.yazhouseba.co/audio/%E6%88%91%E5%81%9A%E9%AA%9A%E8%B4%A7/%E6%88%91%E5%81%9A%E9%AA%9A%E8%B4%A703.mp3
@@ -22966,7 +22968,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻我做骚妻19,https://audio.yazhouseba.co/audio/%E6%88%91%E5%81%9A%E9%AA%9A%E8%B4%A7/%E6%88%91%E5%81%9A%E9%AA%9A%E8%B4%A721.mp3
 
 
-📻电台4_1868,#genre#
+📻电台4_58 96,#genre#
 📻Q群111392749,https://audio.yazhouseba.co/audio/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F01.mp3
 📻老师与学生2,https://audio.yazhouseba.co/audio/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F02.mp3
 📻老师与学生3,https://audio.yazhouseba.co/audio/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F03.mp3
@@ -22990,7 +22992,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻老师与学生21,https://audio.yazhouseba.co/audio/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F21.mp3
 📻老师与学生22,https://audio.yazhouseba.co/audio/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F/%E8%80%81%E5%B8%88%E4%B8%8E%E5%AD%A6%E7%94%9F22.mp3
 
-📻电台5_1868,#genre#
+📻电台5_58 96,#genre#
 📻公公儿子同操我1,https://audio.yazhouseba.co/audio/%E5%85%AC%E5%85%AC%E5%84%BF%E5%AD%90%E5%90%8C%E6%93%8D%E6%88%91/%E5%85%AC%E5%85%AC%E5%84%BF%E5%AD%90%E5%90%8C%E6%93%8D%E6%88%911.mp3
 📻公公儿子同操我2,https://audio.yazhouseba.co/audio/%E5%85%AC%E5%85%AC%E5%84%BF%E5%AD%90%E5%90%8C%E6%93%8D%E6%88%91/%E5%85%AC%E5%85%AC%E5%84%BF%E5%AD%90%E5%90%8C%E6%93%8D%E6%88%912.mp3
 📻少妇爱上大鸡巴1,https://audio.yazhouseba.co/audio/%E5%B0%91%E5%A6%87%E7%88%B1%E4%B8%8A%E5%A4%A7%E9%B8%A1%E5%B7%B4/%E5%B0%91%E5%A6%87%E7%88%B1%E4%B8%8A%E5%A4%A7%E9%B8%A1%E5%B7%B401.mp3
@@ -23012,7 +23014,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻公交凌辱1,https://audio.yazhouseba.co/audio/%E5%85%AC%E4%BA%A4%E5%87%8C%E8%BE%B1/%E5%85%AC%E4%BA%A4%E5%87%8C%E8%BE%B11.mp3
 📻公交凌辱2,https://audio.yazhouseba.co/audio/%E5%85%AC%E4%BA%A4%E5%87%8C%E8%BE%B1/%E5%85%AC%E4%BA%A4%E5%87%8C%E8%BE%B12.mp3
 
-📻电台6_1868,#genre#
+📻电台6_58 96,#genre#
 📻公众号1,https://audio.yazhouseba.co/audio/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%99/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%991.mp3
 📻空格爱分享2,https://audio.yazhouseba.co/audio/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%99/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%992.mp3
 📻在美丽的女神也有被人干的时候3,https://audio.yazhouseba.co/audio/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%99/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%993.mp3
@@ -23021,7 +23023,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻在美丽的女神也有被人干的时候6,https://audio.yazhouseba.co/audio/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%99/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%996.mp3
 📻在美丽的女神也有被人干的时候7,https://audio.yazhouseba.co/audio/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%99/%E5%9C%A8%E7%BE%8E%E4%B8%BD%E7%9A%84%E5%A5%B3%E7%A5%9E%E4%B9%9F%E6%9C%89%E8%A2%AB%E4%BA%BA%E5%B9%B2%E7%9A%84%E6%97%B6%E5%80%997.mp3
 
-📻电台7_1868,#genre#
+📻电台7_58 96,#genre#
 📻淫乱关系1,https://audio.yazhouseba.co/audio/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB01.mp3
 📻淫乱关系2,https://audio.yazhouseba.co/audio/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB02.mp3
 📻淫乱关系3,https://audio.yazhouseba.co/audio/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB03.mp3
@@ -23031,7 +23033,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻淫乱关系7,https://audio.yazhouseba.co/audio/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB07.mp3
 📻淫乱关系8,https://audio.yazhouseba.co/audio/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB/%E6%B7%AB%E4%B9%B1%E5%85%B3%E7%B3%BB08.mp3
 
-📻电台8_1868,#genre#
+📻电台8_58 96,#genre#
 📻淫母欧阳雪1,https://audio.yazhouseba.co/audio/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA01.mp3
 📻淫母欧阳雪2,https://audio.yazhouseba.co/audio/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA02.mp3
 📻淫母欧阳雪3,https://audio.yazhouseba.co/audio/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA03.mp3
@@ -23041,7 +23043,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻淫母欧阳雪7,https://audio.yazhouseba.co/audio/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA07.mp3
 📻淫母欧阳雪8,https://audio.yazhouseba.co/audio/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA/%E6%B7%AB%E6%AF%8D%E6%AC%A7%E9%98%B3%E9%9B%AA08.mp3
 
-📻电台9_1868,#genre#
+📻电台9_58 96,#genre#
 📻美丽的丝袜老师妈妈1,https://audio.yazhouseba.co/audio/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%88/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%8801.mp3
 📻美丽的丝袜老师妈妈2,https://audio.yazhouseba.co/audio/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%88/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%8802.mp3
 📻美丽的丝袜老师妈妈3,https://audio.yazhouseba.co/audio/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%88/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%8803.mp3
@@ -23053,7 +23055,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻美丽的丝袜老师妈妈9,https://audio.yazhouseba.co/audio/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%88/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%8809.mp3
 📻美丽的丝袜老师妈妈10,https://audio.yazhouseba.co/audio/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%88/%E7%BE%8E%E4%B8%BD%E7%9A%84%E4%B8%9D%E8%A2%9C%E8%80%81%E5%B8%88%E5%A6%88%E5%A6%8810.mp3
 
-📻电台10_1868,#genre#
+📻电台10_58 96,#genre#
 📻那一汪肥水的流淌1,https://audio.yazhouseba.co/audio/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C01.mp3
 📻那一汪肥水的流淌2,https://audio.yazhouseba.co/audio/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C02.mp3
 📻那一汪肥水的流淌3,https://audio.yazhouseba.co/audio/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C03.mp3
@@ -23091,14 +23093,14 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻那一汪肥水的流淌35,https://audio.yazhouseba.co/audio/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C36.mp3
 📻那一汪肥水的流淌36,https://audio.yazhouseba.co/audio/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C/%E9%82%A3%E4%B8%80%E6%B1%AA%E8%82%A5%E6%B0%B4%E7%9A%84%E6%B5%81%E6%B7%8C37.mp3
 
-📻电台11_1868,#genre#
+📻电台11_58 96,#genre#
 📻丽丽打工记1,https://audio.yazhouseba.co/audio/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B0/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B001.mp3
 📻丽丽打工记2,https://audio.yazhouseba.co/audio/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B0/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B002.mp3
 📻丽丽打工记3,https://audio.yazhouseba.co/audio/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B0/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B003.mp3
 📻丽丽打工记4,https://audio.yazhouseba.co/audio/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B0/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B004.mp3
 📻丽丽打工记5,https://audio.yazhouseba.co/audio/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B0/%E4%B8%BD%E4%B8%BD%E6%89%93%E5%B7%A5%E8%AE%B005.mp3
 
-📻电台12_1868,#genre#
+📻电台12_58 96,#genre#
 📻操逼大吐嘈,https://audio.yazhouseba.co/audio/%E6%93%8D%E9%80%BC%E5%A4%A7%E5%90%90%E5%98%88.mp3
 📻小巷情缘,https://audio.yazhouseba.co/audio/%E5%B0%8F%E5%B7%B7%E6%83%85%E7%BC%98.mp3
 📻言语不当导致阳痿,https://audio.yazhouseba.co/audio/%E8%A8%80%E8%AF%AD%E4%B8%8D%E5%BD%93%E5%AF%BC%E8%87%B4%E9%98%B3%E7%97%BF.mp3
@@ -23111,7 +23113,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻洗浴中心的卖婬女,https://audio.yazhouseba.co/audio/%E6%B4%97%E6%B5%B4%E4%B8%AD%E5%BF%83%E7%9A%84%E5%8D%96%E6%B7%AB%E5%A5%B3.mp3
 📻性闻趣谈,https://audio.yazhouseba.co/audio/%E6%80%A7%E9%97%BB%E8%B6%A3%E8%B0%88.mp3
 
-淫荡少妇水漫_1868,#genre
+淫荡少妇水漫_5896,#genre
 📻淫荡少妇水漫1,https://audio.yazhouseba.co/audio/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB01.mp3
 📻淫荡少妇水漫2,https://audio.yazhouseba.co/audio/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB02.mp3
 📻淫荡少妇水漫3,https://audio.yazhouseba.co/audio/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB03.mp3
@@ -23135,7 +23137,7 @@ JK萝莉虎,https://0yefiks35y.motorjn.com/20220907/xpSbp7eC/index.m3u8
 📻淫荡少妇水漫21,https://audio.yazhouseba.co/audio/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB21.mp3
 📻淫荡少妇水漫22,https://audio.yazhouseba.co/audio/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB/%E6%B7%AB%E8%8D%A1%E5%B0%91%E5%A6%87%E6%B0%B4%E6%BC%AB22.mp3
 
-📻电台13_1868,#genre#
+📻电台13_58 96,#genre#
 📻小茹的探亲之旅1,https://audio.yazhouseba.co/audio/%E5%B0%8F%E8%8C%B9%E7%9A%84%E6%8E%A2%E4%BA%B2%E4%B9%8B%E6%97%85/%E5%B0%8F%E8%8C%B9%E7%9A%84%E6%8E%A2%E4%BA%B2%E4%B9%8B%E6%97%8501.mp3
 📻小茹的探亲之旅2,https://audio.yazhouseba.co/audio/%E5%B0%8F%E8%8C%B9%E7%9A%84%E6%8E%A2%E4%BA%B2%E4%B9%8B%E6%97%85/%E5%B0%8F%E8%8C%B9%E7%9A%84%E6%8E%A2%E4%BA%B2%E4%B9%8B%E6%97%8502.mp3
 📻小茹的探亲之旅3,https://audio.yazhouseba.co/audio/%E5%B0%8F%E8%8C%B9%E7%9A%84%E6%8E%A2%E4%BA%B2%E4%B9%8B%E6%97%85/%E5%B0%8F%E8%8C%B9%E7%9A%84%E6%8E%A2%E4%BA%B2%E4%B9%8B%E6%97%8503.mp3
